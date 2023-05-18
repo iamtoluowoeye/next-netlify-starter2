@@ -1,20 +1,40 @@
-<!DOCTYPE html>
-<html>
 <head>
-  <title>Functional Web Page</title>
+  <meta charset="UTF-8">
+  <meta property="og:image" content="http://www.woman-themovie.org/wp-content/uploads/2020/02/CHAUD_Celine-W_78-FRANCE_24-FACIES-LVMH-CALLIGARO_Sandra-V.jpg" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
-<body>
-  <p style="text-align: center;"><b><span style="font-size: large;">Are you horny? watch me cum so hard👇&nbsp;</span></b></p>
-  <p style="text-align: center;"><b></b></p>
-  <div class="separator" style="clear: both; text-align: center;"><b><a href="https://yo.fan/p/os6UF9EoWNq" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="489" data-original-width="878" height="202" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhEnurwQM5O26KtzVjC3a6sRQLTCfKpBxakW-GVad20OnUBMyKb_pGa5yoEJD_2euxGzaImUdGXgCNDtcuOZ-PwhaRmGsjnMKPHbgaQVNmAyvGEc0P_7MJS7h4uf-Fr6N8SADrShTI_1xLUWugwNLha9RFgrimHav_4mA88Kx0lqH1PKZuJgQUN4bHo/w363-h202/7b0dc841-0c92-4762-ae00-bc9de7014c59.jpg" width="363" /></a></b></div>
-  <div class="separator" style="clear: both; text-align: center;"><br /></div>
-  <div class="separator" style="clear: both; text-align: center;"><a href="https://yo.fan/p/XPkbS6yx7yg" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="112" data-original-width="464" height="77" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhut6KxYPpAm-sWBqCJOAwd86Mjcp5RzbS2LS0RWE_JpBrUDhF1Bo7l0hvgp4EaiznXIeFnHbHTJuB5yDqLU04I1zDBrxBmG_HLfAeZ3K7DB3oPUSw-8soZlNMYL9YpkAKzrKUSrGJhIXCpsFu5XvASFBpNnAuFDHkU5QjE4AuZdow7p-x7xx0ToFrW/s320/ezgif.com-video-to-gif.gif" width="320" /></a></div>
+<center>
+  <h1>I-HD Chofoza Lapha Ukuze Uyibuke👇</h1>
+    <br />
+<a target="_blank" href="https://www.highrevenuecpmnetwork.com/hwpbg1a0?key=c6a03f0489a934cfed12612f2d02c4fa"><img src="https://stupendous-maz.netlify.app/Untitled%20design%20(5).png" alt="Five cats looking around a field." width="350" height="300"></a>
+<br />
+  
+ 
+<a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://stupendous-maz.netlify.app/play.gif" alt="Five cats looking around a field." width="320" height="100"></a>
+<br />
   <br />
-  <div class="separator" style="clear: both; text-align: center;"><br /></div>
-  <div class="separator" style="clear: both; text-align: center;"><br /></div>
-  <div class="separator" style="clear: both; text-align: center;"><b><span style="font-size: large;">🍆🍑 Hook Up with an HOT Babe HERE&nbsp;<span>👇</span></span></b></div>
-  <div class="separator" style="clear: both; text-align: center;"><b><span style="font-size: large;"><span><br /></span></span></b></div>
-  <div class="separator" style="clear: both; text-align: center;"><b><span style="font-size: large;"><div class="separator" style="clear: both; text-align: center;"><a href="https://yo.fan/p/QG3uYYIZdJY" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="20" data-original-width="50" height="96" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiWAUCwvNWecMnh0vPedNSjDdAtD2vt76LuTSOyVnRwVyeWb6Vx33QQX7Z1hNG-4XWHfRSpFdUtzMibEmaGlRF2O1Cu5T8MknhGQw9dawjYbE8QEbD_aGEz9HUQaOotPkDoTSeh-4PwKEqTDSrMEPcfOipbX0SqG_0e0f7HeIkfl5vvDD5mMb93Dl1f/w262-h96/ezgif.com-video-to-gif-2.gif" width="262" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: center;">Hit me up on WhatsApp for Free 😉😘</div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: center;"><a href="https://yo.fan/p/8Rk6adgsh32" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="48" data-original-width="320" height="58" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidRnLOrpE4T7VsI8pvAVZZwd_SFzZULXXk_NE_OugXXG6L-jcJABo_SdatMYHKWTg8v0QaxXQN4-RUdDi_Qln7qaeQpMxP6DTYY6gldUqaD4dsU32X6MrQ8dxdHsDG5C6RNUlX1EjBxqRhNnBjOs1axLGxlnlZWlP1mH1d3CMbrKKRMLzNqpVbH3O5/w320-h58/ezgif.com-video-to-gif-3.gif" width="320" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><a href="https://yo.fan/p/4MnMHTbNX8O" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="144" data-original-width="144" height="144" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7IQogN6TeYf_WvnzZ-TKfzga9uesvpmrKEQcpvtpXX4J1CTSDsGHhRTBa_G9gOXcfoEZNWuA-a5Yw2V0DxHzvoMZ_n9rnGrvURPK5IErEnz_eD0IUuZSYmLSC8F7KxyM2rhdCpsgrHE-3CgK4WYpZy3Fd7RMmgc328s5rkjb_G62OVecj9zgYkE6w/s1600/ezgif.com-video-to-gif-4.gif" width="144" /></a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><div class="separator" style="clear: both; text-align: center;">let's do Facebook video call 👆</div><span><br /></span></span><div class="separator" style="clear: both; text-align: center;"><a href="https://yo.fan/p/8vOSBnxXQP5" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="153" data-original-width="272" height="153" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihiVplZFJt4J33IpVX2__ggIGVqTbS0FFHF6xrzLVa0EfxW1CShxHTSBrk07h7g-dIwtVYwPHu2yKmaonGwoT5hYi_PGq_t9jaX_xvqzP14oGKu3tRqgMe9K9QlmSSuabAyuoLIyKrO4KkjHSyB_KSMHyKFvkuK7oVdz-z57i5QUQnKcfMGWIR8Vt7/s1600/2865f53a-5b76-49db-a824-6c3e7c30da99.jpg" width="272" /></a></div><br /></b></div> 
+  <br />
+  <br />
+    <a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://stupendous-maz.netlify.app/whats.gif" alt="Five cats looking around a field." width="350" height="100"></a>
+<h2>khuluma nami kuwhatsapp</h2>
+  <br />
+  <br />
+  <br />
+<a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://asepagri.com/wp-content/uploads/2023/02/Screenshot_20230206-042453-300x150.png" alt="Five cats looking around a field." width="320" height="100"></a>
+<br />
+  <br />
+  <br />
+  <a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://stupendous-maz.netlify.app/newww.gif" alt="Five cats looking around a field." width="320" height="100"></a>
+<br />
+  <br />
+  <br />
+  <br />
 
-</body>
-</html>
+ <a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://stupendous-maz.netlify.app/faceboo.gif" alt="Five cats looking around a field." width="320" height="100"></a>
+<h2>ngibuyele ku-facebook</h2>
+  <br />
+  <br />
+  <br />
+  <a target="_blank" href="https://www.highrevenuegate.com/k2teiyuizm?key=89e88bacc97dd96ca05f751701656cdf" ><img src="https://stupendous-maz.netlify.app/pl%20(2).jpg" alt="Five cats looking around a field." width="350" height="100"></a>
+
+</center>
